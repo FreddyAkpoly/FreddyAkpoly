@@ -37,6 +37,6 @@
 ## 📫 Let's Connect
 
 - 🌐 [LinkedIn](https://www.linkedin.com/in/freddy-akpoly/)
-- 📬 Email: freddy.akpoly@gmail.com
+- 📬 Email: freddyakpoly03@gmail.com
 - 🌱 Always learning and open to collaboration on meaningful projects
 
